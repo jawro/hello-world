@@ -4,3 +4,4 @@ LMAO LMAO DUPA
 to jest najnowsza wersja i jest super :D
 
 enter szmato
+ i nowa nowa ^2
